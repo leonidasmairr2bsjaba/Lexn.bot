@@ -1,0 +1,2 @@
+# Lexn.bot
+Najabansv
